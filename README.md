@@ -29,7 +29,7 @@ Metropolitan area, also called Metropolis, a major city together with its suburb
   Sisce delhi is caplical most of  the governing bodies are in  delhi.Delhi is  blessed with a plenty of heritages like Tajmahal,Redfort,etc.
   Delhi has the second-highest GDP per capita in India.Delhi has been continuously inhabited since the 6th century BCE.There are a number of myths and legends associated with the origin of the name Delhi.The people of Delhi are referred to as Delhiites or Dilliwalas.
  
-  [for more ](https://en.wikipedia.org/wiki/Delhi)
+  [for more click here ](https://en.wikipedia.org/wiki/Delhi)
 
 
   > ## MUMBAI
@@ -45,7 +45,7 @@ Mumbai has been hub for software and stockmarket,its also a full of world hwrita
 Mumbai is the host bollyhood movies and most of the actors and actress of bollyhood live in mumbai.
 Indias richest man Mukesh ambani chairman of Relance industries ltd,lives in Mumbai.
 
-[for more](https://en.wikipedia.org/wiki/Mumbai)
+[for more click here](https://en.wikipedia.org/wiki/Mumbai)
 
 
 > ## KOLKATA
@@ -62,7 +62,7 @@ kokkata  is the prime business, commercial, and financial hub of eastern India a
 Following independence in 1947, Kolkata, which was once the centre of Indian commerce, culture, and politics, suffered many decades of political violence and economic stagnation.
 The word Kolkata  derives from Kôlikata , the Bengali name of one of three villages that predated the arrival of the British, in the area where the city was eventually established; the other two villages were Sutanuti and Govindapur.
 
-[for more](https://en.wikipedia.org/wiki/Kolkata)
+[for more click here](https://en.wikipedia.org/wiki/Kolkata)
 
 > ## CHENNAI 
 ![clog](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTB3AFUL55aFm5k2fy0WA3BLPpCM7q5gEmFYQ&usqp=CAU)
@@ -76,4 +76,4 @@ Chennai formerly known as Madras, the official name until 1996) is the capital o
 
    Chennai is aslo known as the hub of sothern movies.he name Chennai is of Telugu origin. It was derived from the name of a Telugu ruler, Damarla Mudirasa Chennappa Nayakudu, father of Damarla Venkatapathy Nayak, a Nayak ruler who served as a general under Venkata III of the Vijayanagar Empire from whom the British acquired the town in 1639.
 
-   [for more](https://en.wikipedia.org/wiki/Chennai)
+   [for more click here](https://en.wikipedia.org/wiki/Chennai)
